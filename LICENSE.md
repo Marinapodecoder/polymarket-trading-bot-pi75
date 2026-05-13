@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with updated Polymarket Plugin | leverage-trading + custom-strategies, the #1 plugin. Includes leverage-trading and custom-strategies for a
 
 
 
